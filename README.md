@@ -1,2 +1,2 @@
 # billyjoewimpy77-adginus-prime-repo.
-The school that just doesn't teach it remembers.
+The school that just doesn't just teach it remembers.
